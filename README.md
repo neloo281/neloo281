@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @neloo281
+- 👀 I’m interested in codings
+- 🌱 I’m currently learning how to program webpage and release it public
+- 📫 How to reach me arnhelopone@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i'm into computer since child (in other words im playing at computer shop)
